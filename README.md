@@ -35,7 +35,7 @@ I am currently seeking **internship opportunities** where I can continue learnin
 ---
 
 ## 🤝 Connect with Me
-- 📧 Email: **azhiiikrams540@gmail.com**
+- 📧 Email: **zahiriikram540@gmail.com**
 - 💼 LinkedIn: https://www.linkedin.com/in/ikramzahiri
 
 ---
